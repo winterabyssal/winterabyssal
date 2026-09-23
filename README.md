@@ -23,7 +23,7 @@
  ㅤ
  
 
-${\color{#decfa3}{\textsf  ܸ > ⩊ < ܸ}}$ kami  or  winter
+${\color{#8f3e2f}{\textsf  ܸ > ⩊ < ܸ}}$ ${\color{#dcbf9d}{\textsf kami }}$  or  ${\color{#462621}{\textsf winter}}$
     
  𓏼   any   𓏏𓏏   mirror
 
@@ -34,7 +34,7 @@ ${\color{#decfa3}{\textsf  ܸ > ⩊ < ܸ}}$ kami  or  winter
 <tr>
 <td>
   <details>
-<summary>$\color{#6b334a}{\textsf{ㅤㅤㅤㅤㅤlinksㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#9e5735}{\textsf{ㅤㅤㅤㅤㅤlinksㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
     
 [atabook](https://slushly.atabook.org)  ✧  [prns.cc](https://pronouns.cc/@div_y)  ✦  [straw](https://straw.page/shamefully) 
@@ -57,7 +57,7 @@ ${\color{#decfa3}{\textsf  ܸ > ⩊ < ܸ}}$ kami  or  winter
     <br>
 
   
-  ${\color{#4c505f} dontㅤcopyㅤmyㅤskins , veryㅤsociallyㅤmyㅤawkward }$
+  ${\color{#4c505f} dontㅤcopyㅤmyㅤskins , veryㅤsociallyㅤawkward }$
     <br>
 
   ${\color{#4c505f} atㅤmcytㅤareaㅤorㅤrarelyㅤdocksㅤ}$
