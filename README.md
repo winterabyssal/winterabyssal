@@ -1,7 +1,7 @@
 
 <div align="center">
 
-<p align="center"><img width="650" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled466_20260923221007.png" align="Center" width="300" /></p>
+<p align="center"><img width="700" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled466_20260923221007.png" align="Center" width="300" /></p>
 
   
   
@@ -10,7 +10,7 @@
 </p>
 
 
-<p align="center"><img width="400" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled462_20260923214521.png" alt="kaveh!" align="left" width="300" /></p>
+<p align="center"><img width="400" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled462_20260923214521.png" align="left" width="300" /></p>
 
 
 
@@ -23,11 +23,11 @@
  ㅤ
  
 
-${\color{#8f3e2f}{\textsf  ܸ > ⩊ < ܸ}}$ ${\color{#dcbf9d}{\textsf kami }}$  or  ${\color{#462621}{\textsf winter}}$
+${\textsf{\color{#af703d} ꒰｡- ᴗ - ｡꒱ }}$ ${\textsf{\color{#c9955c} kami }}$  or  ${\textsf{\color{#462621} winter }}$
     
- 𓏼   any   𓏏𓏏   mirror
+ ✚ .   ${\textsf{\color{#7f3627} any }}$   ${\textsf{\color{#ddb99b} ♡ 𓈒 }}$  ${\textsf{\color{#b4763e} mirror }}$
 
-ʿʿ  ⊹  sp/so 6(w5)49 ˘  apagender   𓂂
+
 
 
 
@@ -37,7 +37,7 @@ ${\color{#8f3e2f}{\textsf  ܸ > ⩊ < ܸ}}$ ${\color{#dcbf9d}{\textsf kami }}$  
 <summary>$\color{#9e5735}{\textsf{ㅤㅤㅤㅤㅤlinksㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
     
-[atabook](https://slushly.atabook.org)  ✧  [prns.cc](https://pronouns.cc/@div_y)  ✦  [straw](https://straw.page/shamefully) 
+[atabook](https://slushly.atabook.org)  𓈒  [prns.cc](https://pronouns.cc/@div_y)     𓂂  [straw](https://straw.page/shamefully) 
     <br>
 
 </details>
@@ -53,14 +53,14 @@ ${\color{#8f3e2f}{\textsf  ܸ > ⩊ < ܸ}}$ ${\color{#dcbf9d}{\textsf kami }}$  
 <summary>$\color{#6b334a}{\textsf{ㅤㅤㅤㅤㅤㅤInfoㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
 
-  ${\color{#4c505f} c+hㅤisㅤalwaysㅤencouragedㅤ. w2i }$
+  ${\textsf{\color{#a15937} c+hㅤisㅤalwaysㅤencouragedㅤ. w2i }}$
     <br>
 
   
-  ${\color{#4c505f} dontㅤcopyㅤmyㅤskins , veryㅤsociallyㅤawkward }$
+  ${\textsf{\color{#ba7f42} dontㅤcopyㅤmyㅤskins , veryㅤsociallyㅤawkward }}$
     <br>
 
-  ${\color{#4c505f} atㅤmcytㅤareaㅤorㅤrarelyㅤdocksㅤ}$
+  ${\textsf{\color{#412621} atㅤmcytㅤareaㅤorㅤrarelyㅤdocksㅤ }}$
     <br>
     
 </details>
@@ -76,7 +76,7 @@ ${\color{#8f3e2f}{\textsf  ܸ > ⩊ < ܸ}}$ ${\color{#dcbf9d}{\textsf kami }}$  
 
 
 
-<p align="center"><img width="650" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled466_20260923221032.png" align="Center" width="300" /></p>
+<p align="center"><img width="700" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled466_20260923221032.png" align="Center" width="300" /></p>
 
 
 
