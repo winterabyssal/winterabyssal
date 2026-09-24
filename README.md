@@ -37,7 +37,7 @@ ${\textsf{\color{#af703d} ꒰｡- ᴗ - ｡꒱ }}$ ${\textsf{\color{#c9955c} kam
 <summary>$\color{#9e5735}{\textsf{ㅤㅤㅤㅤㅤlinksㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
     
-[atabook](https://slushly.atabook.org)  𓈒  [prns.cc](https://pronouns.cc/@div_y)     𓂂  [straw](https://straw.page/shamefully) 
+[atabook](https://slushly.atabook.org)  𓈒  [prns.cc](https://pronouns.cc/@div_y)     𓂂  [straw](https://shamefully.straw.page/) 
     <br>
 
 </details>
