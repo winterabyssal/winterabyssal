@@ -1,4 +1,3 @@
-
 <div align="center">
 
 <p align="center"><img width="700" src="https://file.garden/adIzTYUl0F9NXJnQ/Untitled466_20260923221007.png" align="Center" width="300" /></p>
@@ -43,8 +42,6 @@ ${\textsf{\color{#af703d} ꒰｡- ᴗ - ｡꒱ }}$ ${\textsf{\color{#c9955c} kam
 </details>
   </td>
   </tr>
-
-
 
   
 <tr>
